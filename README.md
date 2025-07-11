@@ -1,32 +1,5 @@
-Shadow was the final result of Project: Shadow. Gerald Robotnik created him, but he could not finish the project on his own, so he contacted the Black Comet, which was going through it's circle visit. Black Doom agreed to help Gerald, on the condition that Gerald would bring him the Chaos Emeralds. However, Gerald learned what Black Doom was really after and developed the Eclipse Cannon. However, he finished creating Shadow anyway.
-
-Once he was created, Shadow became friends with Gerald's granddagughter, Maria Robotnik. He wasn't sure what it was like on Earth, but he was certain Gerald wanted him for something connected with Earth. Once, he and Maria stopped the Artificial Chaos from attacking the researchers, but one day G.U.N. landed on the colony. When they found the Biolizard, they shut down the colony and attacked Maria and Shadow. They were able to defeat Heavy Dog, but just as they were escaping, Heavy Dog's pilot shot Maria, making her near death. She encapsulated Shadow and ejected him to the planet before dying, but not before she asked him to give the humans a "chance to be happy".
-
-Shadow's capsule landed on Prison Island, where he was found by Gerald. Gerald made Shadow believe Maria wanted revenge, causing him to get agitated and bent on finding a plot how to avenge her.
-
-
-
-Fighting for a Friend
-
-50 years later, G.U.N. created some new robots, and so to combat them, Eggman hacked into their database and not only did he gain access to their robot designs, but he also found Gerald's diary, who just happened to be his grandfather. Using that, Eggman broke into Prison Island using his new Egg Walker and used the White Chaos Emerald to resurrect Shadow from suspended animation, and Shadow promised to grant Eggman one wish, showing his power by destroying a Hot Shot. He told Eggman to bring more Chaos Emeralds to the Space Colony ARK.
-
-He then robbed a bank of the Green Chaos Emerald, destroying the military's guard robots. G.U.N. mistook him for Sonic the Hedgehog and imprisoned him. Sonic escaped and he and Shadow first met when Sonic destroyed a Big Foot. He showed himself inferior using the Chaos Emerald to induce a Chaos Control. He escaped to the Space Colony, and showed Eggman the Eclipse Cannon and that he needed the seven Chaos Emeralds to reactivate it's true power, using the White and Green Chaos Emeralds to destroy some stars. Rouge the Bat made a deal with them, handing over her Blue Chaos Emerald to Eggman and promising to show him where the other Chaos Emeralds were.
-
-They returned to Prison Island, which angered Eggman, not wanting to return there. To keep that from happening again, Eggman made a plan: having Rouge retrieve the Chaos Emeralds while Shadow destroyed the island. However, they ran into Amy Rose, who mistook him for Sonic and hugged him. He set the timer onto the armoury packs, when Rouge sent him a distress call: she was trapped in a cell with the Chaos Emeralds. Quickly, Shadow made his way through the Green Forest, when he ran into Sonic again. After a brief fight, Eggman called Shadow and warned him to get away. Shadow then raced to Rouge's rescue, using Chaos Control with the three Chaos Emeralds to warp onto the Space Colony ARK before Prison Island exploded.
-
-While Shadow was reminiscing on ARK about looking through the same window with Maria, he was soon told by Eggman that the Eclipse Cannon was ready for the demonstration. Using it's power, Eggman created havoc on the planet by blowing up half of the moon. However, it would take too long to recharge, so Rouge showed him a newspaper showing that the last Chaos Emerald was in the posession of Miles "Tails" Prower, so Shadow returned to Earth to find them. He later returned, when Eggman tossed Sonic into a space capsule and it exploded, killing him.
-
-Shadow then found out Rouge was actually Agent Rouge from G.U.N., and she had been hired to reaserch Project Shadow and she had guessed that the Biolizard was the real Shadow and Shadow wasn't. Shadow then heads to the Eclipse Cannon's center through Final Rush, finding out Sonic wasn't dead. He had used Chaos Control to warp back onto the ARK with a fake Chaos Emerald. Shadow defeated hm before he could destroy the Eclipse Cannon, allowing Eggman to implant the Yellow Chaos Emerald inside, only to do what Shadow wanted: activate Gerald's crash program, infusing the Chaos Emeralds to the Cannon's Core to transform it into a megabomb. The ARK then began to fall to the Earth, leaving only 27 minutes and 53 seconds until it crashed into the planet and killed everyone on it.
-
-Soon, Amy reminded Shadow of Maria's true wish and he helped Sonic and Knuckles to stop the Chaos Emeralds by distracting the Biolizard while Knuckles disabled the Chaos Emeralds with the Master Emerald. However, the Biolizard refused to let the colony stop and absorbed the emerald's power, using Chaos Control to warp to the outside of the space colony and fusing with the Eclipse Cannon, transforming into a being known as the FinalHazard. Sonic and Shadow then absorbed the Chaos Emeralds, transforming into Super Sonic and Super Shadow. Together, they defeated the FinalHazard and then held back the blow. Eventually, Shadow hears Maria's voice in his head, causing his friendship to supercharge him, taking off his limiter rings and release a Chaos Control which warps drains off his power, causing him to fall to the Earth and he was presumed dead.
-
-
-
-A Deadly Return
-
-After this, Eggman found his body and put it in one of his bases. He also copied Shadow's design, creating Shadow Androids. However, he is found by Rouge the Bat, who reactivates him and saves her from an attack from E-123 Omega. They eventually settle their differences and form Team Dark to find Eggman. After defeating the Egg Hawk, Team Chaotix, and the Robot Carnival, they defeat Eggman at the Rail Canyon in the Egg Albatross, however it proves to actually be a fake. Shadow looks at a destroyed Shadow Android before Team Dark runs off to the Frog Forest, not seeing Neo Metal Sonic copying their data.
-
-At the Frog Forest, they battle Team Sonic, who are surprised to see Shadow. After a brief battle, they venture toward the Hang Castle, where they defeat the Robot Storm and board the Egg Fleet, defeating the Egg Emperor, although it proved to be a fake too. After Rouge fails to find Eggman's secret treasure aboard the Final Fortress, she decides she will go find the Master Emerald. Prior to this, they obtained the Green and White Chaos Emeralds.
-
-After this, they find themselves up against Metal Madness, who was imposing Eggman the whole time to copy their data. Team Dark hands the Chaos Emeralds to Team Sonic and delay Metal Madness until Team Sonic can become Team Super Sonic and defeat Metal Overlord. After this, Omega takes posession of the deactivated Metal Sonic and Shadow leaves Team Dark to discover his past.
-
+![IMG_1030](https://github.com/user-attachments/assets/090dddc7-ead8-46a3-97e8-8b4228d17922)
+[rentry](https://rentry.co/yosaano)
+[straw page](https://sundie.straw.page/)
+![IMG_1027](https://github.com/user-attachments/assets/5e8c5c2c-a83d-450a-a85d-3bad1a4f5050)
+HIIIIII
